@@ -83,7 +83,7 @@ I enjoy working with data, solving problems, and building interactive dashboards
   </a>
 </p>
 
-📧 Email: akashreddych4@.gmailcom  
+📧 Email: akashreddych4@gmail.com  
 
 ---
 
